@@ -1,3 +1,2 @@
 # Geodesy
-
-Damn I'm cute as fuq
+I am such the robot beep bop
